@@ -1,0 +1,2 @@
+# https-poojabox.net-products-decorative-floral-marble-urli-6-inches
+It seems like you're describing a traditional decorative item. A Floral Diwali Urli with Stand appears to be a piece of Indian decor that combines elements like peacocks, diyas (oil lamps), flowers, and an urli (a shallow decorative bowl) on a stand. This item could potentially be used for festivals, weddings, or as a general decorative piece.
